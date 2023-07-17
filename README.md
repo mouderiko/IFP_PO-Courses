@@ -1,0 +1,1 @@
+# akrymo_technology
